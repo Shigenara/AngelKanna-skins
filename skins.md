@@ -18,3 +18,6 @@ make sure you also check out eternum skins, he uses them from time to time aswel
 
 # [Karthy 6.0 DT](https://mega.nz/#!NMsgTa7Z!Y9BMVOeTmr6pEHLxVnvcrafM3snENw0mcZDC5dY_2-4)
 ![](https://osu.ppy.sh/ss/16368478/7e2a)
+
+# [okinamo](https://mega.nz/#!hvp1DSyI!BsXz4MNVvbw9hN9hfKMAAct1N2fbl7dvkGVJ2y9NU6w)
+![](https://osu.ppy.sh/ss/16368501/20b8)
