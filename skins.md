@@ -1,10 +1,7 @@
 # Collection of skins Kanna uses
 
 
-# [NEW PERSONAL KANNA SKIN YOU CAN FIND IT HERE](https://www.reddit.com/r/OsuSkins/comments/myd2gc/neferpitou_includes_lite_and_nonweeb_versions/)
-thx pirasto
-
-
+# NEW PERSONAL KANNA SKIN YOU CAN FIND IT [HERE](https://www.reddit.com/r/OsuSkins/comments/myd2gc/neferpitou_includes_lite_and_nonweeb_versions/)
 
 also check out eternum skins, he uses them from time to time aswell: [Eternum skins](https://gist.github.com/Redo7/e54fcf189c1c1aa2c8c7ee5341711312)
 
