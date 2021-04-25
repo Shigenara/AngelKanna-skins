@@ -2,6 +2,7 @@
 
 
 # NEW PERSONAL KANNA SKIN YOU CAN FIND IT [HERE](https://www.reddit.com/r/OsuSkins/comments/myd2gc/neferpitou_includes_lite_and_nonweeb_versions/)
+![](https://i.imgur.com/6WDZ6zm.jpg)
 
 also check out eternum skins, he uses them from time to time aswell: [Eternum skins](https://gist.github.com/Redo7/e54fcf189c1c1aa2c8c7ee5341711312)
 
