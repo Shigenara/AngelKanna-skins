@@ -1,5 +1,12 @@
 # Collection of skins Kanna uses
-make sure you also check out eternum skins, he uses them from time to time aswell: [Eternum skins](https://gist.github.com/Redo7/e54fcf189c1c1aa2c8c7ee5341711312)
+
+
+# [NEW PERSONAL KANNA SKIN YOU CAN FIND IT HERE](https://www.reddit.com/r/OsuSkins/comments/myd2gc/neferpitou_includes_lite_and_nonweeb_versions/)
+thx pirasto
+
+
+
+also check out eternum skins, he uses them from time to time aswell: [Eternum skins](https://gist.github.com/Redo7/e54fcf189c1c1aa2c8c7ee5341711312)
 
 # [Aristia(edit) by aireu](https://iwa.s-ul.eu/pcJjl0jc) 
 ![](https://osu.ppy.sh/ss/16368353/3702)
